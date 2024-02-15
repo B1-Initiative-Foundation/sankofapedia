@@ -1,7 +1,0 @@
-Mark Clark (June 28, 1947 – December 4, 1969) was an American activist and a member of the Black Panther Party (BPP)[1]. Born in Peoria, Illinois, Clark became active in the National Association for the Advancement of Colored People (NAACP) at a young age, leading and participating in demonstrations for housing, fair pay, employment practices, and quality education for the local black population[8]. He attended Manual High School and Illinois Central College in Peoria[4].
-
-Clark joined the Black Panther Party after studying its literature and ten-point program[8]. He organized a local Peoria chapter of the BPP and established a free breakfast program at Ward Chapel AME Church in Peoria, Illinois, with the support of local Pastor Blaine Ramsey[4]. However, the church members, concerned about the program's sponsorship by the Black Panther Party, voted against continuing it[4].
-
-On December 4, 1969, Clark was killed during a police raid on Fred Hampton's apartment in Chicago[1]. Clark, who was on security duty in the front room of the apartment, was hit by the first shot fired by the police, which struck him in the heart[4]. The brutal nature of the deaths during this police raid created controversy and led to an inquest into the deaths of Clark and Hampton[4].
-
-Clark's dedication to the Black Panther Party and his commitment to fighting against discrimination and oppression are remembered as part of his legacy[1][2]. His life and work are detailed in the book "Mark Clark: Soul of a Black Panther," written by his sister, Gloria Clark-Jackson[12].
