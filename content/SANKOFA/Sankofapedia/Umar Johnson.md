@@ -1,5 +1,5 @@
 ## Full Name
-Umar Rashad Ibn Abdullah-Johnson
+Dr. Umar Rashad Ibn Abdullah-Johnson
 
 ## Date of Birth
 August 21, 1974
