@@ -1,6 +1,4 @@
 ---
 title: Organizations
-tags:
-  - Organizations
-draft:
 ---
+In this category you will find articles about organizations.
