@@ -1,6 +1,4 @@
 ---
 title: People
-tags:
-  - People
-draft:
 ---
+In this category you will find articles about people
